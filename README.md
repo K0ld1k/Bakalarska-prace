@@ -1,0 +1,1 @@
+Řešení bakalářské práce
